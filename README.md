@@ -2,6 +2,7 @@
 - 👀 I’m interested in Soccer and Basketball  
 - 🌱 I’m currently learning IT Systemadministration and in my Freetime Coding
 - 📫 How to reach me? Add me on Discord: fynn.jsn
+- 🚗 **If you want to play Mario Kart, please reach me out in Discord!**
 
 
 <!---
